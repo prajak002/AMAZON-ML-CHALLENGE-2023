@@ -1,2 +1,6 @@
 # AMAZON-ML-CHALLENGE-2023
  product length prediction 
+
+
+
+AM, I  A  FOOL! NOOB BUOY... KI  COMPEITION CODE GITHUB PUBLIC ME DAALU
